@@ -1,8 +1,7 @@
-TPashaxrd/BENİOKU.md
+AdemStay/BENİOKU.md
 
 # Merhaba 👋, ben AdemStay
 
-Türkiye'den Girişimci ile Ön Yüz
 
 ## Profile views: ![](https://komarev.com/ghpvc/?username=AdemStay&color=blue)
 
