@@ -12,8 +12,8 @@ AdemStay/BENİOKU.md
 
 ## 📫 Benimle iletişime geçin:
 
-- 📧 Mail, Instagram ve Discord: altintoprak06@gmail.com
-- 🔗 [Instagram](https://instagram.com/AdemStay) [Discord](https://discord.gg/AdemStay) ve E-Posta
+- 📧 Mail, Instagram ve Discord: ademstay36@gmail.com
+- 🔗 [Instagram](https://instagram.com/AdemStay) [Discord](https://discord.gg/ademstay) ve E-Posta
 
 ## 🌐 Sosyal Medya:
 
